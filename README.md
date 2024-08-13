@@ -9,5 +9,7 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo 📫
 alurastartestudante@email.com
 
-@alurastartestudante
-https://tenor.com/pt-BR/view/crazy-cat-dancing-crazy-cat-dance-moves-too-cool-i-got-this-gif-14504785
+@alurastartestudante    
+
+
+![](ttps://tenor.com/pt-BR/view/crazy-cat-dancing-crazy-cat-dance-moves-too-cool-i-got-this-gif-14504785)
