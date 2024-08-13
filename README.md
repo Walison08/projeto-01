@@ -12,4 +12,4 @@ alurastartestudante@email.com
 @alurastartestudante    
 
 
-![](ttps://tenor.com/pt-BR/view/crazy-cat-dancing-crazy-cat-dance-moves-too-cool-i-got-this-gif-14504785)
+![](https://media1.tenor.com/m/dur8_lWhH2cAAAAC/crazy-cat-dancing-crazy-cat.gif)
